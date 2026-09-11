@@ -1,0 +1,1 @@
+# pertemuan-2dasar-alpro-pytho-2225250151
